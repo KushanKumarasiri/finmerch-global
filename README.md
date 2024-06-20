@@ -1,0 +1,1 @@
+# finmerch-global
